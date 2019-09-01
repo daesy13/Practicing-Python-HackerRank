@@ -1,0 +1,1 @@
+# Psychometric testing is designated to find-job relevant information about an applicant that the traditional interview process
